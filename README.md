@@ -1,3 +1,5 @@
-![till-alien-stage-till](https://github.com/user-attachments/assets/8e195fa6-73e1-465e-b527-79a5083a2d81)
+![Untitled482_20250622203720](https://github.com/user-attachments/assets/7fae7f48-32f0-453d-8f13-6ee276f95225)
+
+READ MY CARRD FOR MORE INFO:3
 
 
