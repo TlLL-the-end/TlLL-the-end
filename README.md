@@ -3,7 +3,7 @@
 ![Untitled484_20250701145120](https://github.com/user-attachments/assets/56f7916e-3f4f-4710-b5b8-9921494b06ce)
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=TlLL-the-end&color=9acddd&style=plastic&label= 🎸" />
+  <img src="https://komarev.com/ghpvc/?username=TlLL-the-end&color=9acddd&style=plastic&label= 🎸 " />
 </p>
 
 ⁠☆  find me at **hyv** / **alnst** area    —  
